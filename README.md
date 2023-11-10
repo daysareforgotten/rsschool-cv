@@ -1,1 +1,1 @@
-https://daysareforgotten.github.io/rsschool-cv/cv
+https://daysareforgotten.github.io/rsschool-cv/
