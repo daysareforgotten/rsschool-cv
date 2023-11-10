@@ -1,1 +1,1 @@
-# rsschool-cv
+https://daysareforgotten.github.io/rsschool-cv/
